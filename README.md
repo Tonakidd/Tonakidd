@@ -4,7 +4,7 @@
 
 🌱 I'm currently studying at the School21.
 
-📫 Just email me at mtenzina000@mail.ru
+📫  Contacts: write to the mail mtenzina000@mail.ru
 
 💬 or text me on Telegram @shlvstnzmrr.
 
